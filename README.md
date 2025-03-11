@@ -13,6 +13,9 @@ Willkommen auf meinem GitHub-Profil!
 - Neben Volleyball und Leichtathletik trainiere ich regelmäßig im Fitnessstudio und konzentriere mich auf Krafttraining.  
 - Motorräder sind eine weitere Leidenschaft, besonders die Kawasaki H2
 
+- **Schule:** Realschule Wildeshausen, Klasse 9
+- **Ziel:** Ich möchte BWL studieren, um tiefer in Wirtschaftsthemen einzutauchen und mein Wissen praktisch anzuwenden.
+
 ---
 
 ## 🚀 Fähigkeiten  
